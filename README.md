@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on developing games
 - 📫 How to reach me:
         1. vk.com/epxch
-        2. Discord: ёж#1249
+        2. Discord: epxch#1249
